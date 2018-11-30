@@ -1,0 +1,1 @@
+# Min_shaman_side
